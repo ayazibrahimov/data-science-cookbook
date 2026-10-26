@@ -44,3 +44,10 @@ Poulet mayo is a marinated, oven-roasted chicken from the Democratic Republic of
 5. **Cook the chicken:** Preheat the oven to 200°C. Put the chicken in an oven dish and cook for 45-70 minutes, depending on its size. Turn the pieces halfway through.
 6. **Make it golden:** When the chicken is almost cooked, turn on the oven grill for 3-5 minutes to brown the outside. Watch carefully so it does not burn.
 7. **Check and serve:** Make sure the thickest part of the chicken reaches 74°C inside. Serve hot with fries, fried plantain and pili-pili sauce.
+
+
+## Tips and tricks
+- Serve it the Congolese way: with fried plantain, potato fries or kwanga, and a Congolese drink on the side.
+- Marinate overnight if you can, because the flavour is much better.
+- Adjust the pili-pili(chili) to your taste, or serve it on the side so everyone can choose their own heat.
+- Best enjoyed with family and friends, and rumba music!
