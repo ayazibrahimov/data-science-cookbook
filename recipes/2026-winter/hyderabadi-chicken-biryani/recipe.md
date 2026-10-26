@@ -67,3 +67,8 @@ Hyderabadi Chicken Biryani is a popular Indian rice dish made with aromatic basm
 - Cook on low heat during the final stage to prevent burning.
 - Check that the chicken reaches an internal temperature of 74°C before serving.
 - Serve with raita, sliced onions, or a fresh salad.
+
+
+## Personal Note
+
+I enjoy Hyderabadi Chicken Biryani because of its rich aroma and combination of spices. The key to a good biryani is preparing the rice carefully and cooking the chicken with enough time for the flavours to develop.
