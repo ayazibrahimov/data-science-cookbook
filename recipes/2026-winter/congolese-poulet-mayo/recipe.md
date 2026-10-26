@@ -37,5 +37,10 @@ Poulet mayo is a marinated, oven-roasted chicken from the Democratic Republic of
 - Extra mayonnaise or pili-pili sauce for serving
 
 ## Instructions
-- Step 1
-- Step 2
+1. **Prepare the chicken:** Clean the chicken and cut it into pieces, or cut one whole chicken open.
+2. **Make the sauce:** In a bowl, mix the mayonnaise, mustard, oil, lemon juice, crushed garlic, chopped onion, paprika, chicken bouillon powder, black pepper, salt, and chilli if you like it spicy.
+3. **Add the sauce:** Put the chicken in a large bowl. Pour the sauce over it and rub it all over the chicken.
+4. **Let it rest:** Cover the bowl and put it in the fridge for at least 2 hours. Overnight gives more flavour.
+5. **Cook the chicken:** Preheat the oven to 200°C. Put the chicken in an oven dish and cook for 45-70 minutes, depending on its size. Turn the pieces halfway through.
+6. **Make it golden:** When the chicken is almost cooked, turn on the oven grill for 3-5 minutes to brown the outside. Watch carefully so it does not burn.
+7. **Check and serve:** Make sure the thickest part of the chicken reaches 74°C inside. Serve hot with fries, fried plantain and pili-pili sauce.
